@@ -7,3 +7,6 @@ My English is not perfect and nor is my typewriting so please forgive any mistak
 
 
 Mistake 1 and 2
+
+
+Merger attempt 2.
